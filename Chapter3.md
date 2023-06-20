@@ -1,1 +1,11 @@
 # Capítulo 3
+
+Era da Razão
+Com o início do desenvolvimento da ciência e a construção da chamada Era da Razão, obras foram desenvolvidas por Johannes Kepler, com seu livro Somnium (1620–1630), Francis Bacon' The New Atlantis (1627),[22] Cyrano de Bergerac, com Comical History of the States and Empires of the Moon (1657) e The States and Empires of the Sun (1662), e Margaret Cavendish, Duquesa de Newcastle-upon-Tyne, com The Blazing World (1666).[23][24][25][26]
+
+Século XIX
+Com o desenvolvimento, ao longo do século XIX do romance como forma literária e com o surgimento de inovações tecnológicas como a eletricidade e o telégrafo e novas formas de transporte, e avanços nas áreas de biologia, física, química e astronomia, os livros de Mary Shelley Frankenstein (1818) e The Last Man (1826) estabeleceram as bases do que viriam a ser chamados os livros de ficção científica deste século em diante, como argumento Brian Aldiss.[27] Outros autores, como H. G. Wells e Jules Verne criaram livros que também se tornaram extremamente populares em várias camadas da sociedade.[28] Em A Guerra dos Mundos (1898), H. G. Wells descreve uma invasão marciana, no final da era vitoriana, na Inglaterra, onde os invasores usavam máquinas (tripods) e um avançado arsenal bélico.[29] No final do século XIX, o termo "romance científico" foi usado na Inglaterra para designar a ficção científica e continuou em uso no começo do século XX por autores como Olaf Stapledon.
+
+Destacam-se também os livros dos astrônomos Percival Lowell e Camille Flammarion, publicados entre o final do século XIX e início do século XX que conjecturavam a existência de dos canais de Marte e de vida extraterrestre, que inspiraram diversos autores.[30]
+
+Na América Latina, os primeiros exemplos são Páginas da história do Brasil, escritas no ano 2000 de Joaquim Felício dos Santos, uma sátira política publicada entre 1868 a 1872 no jornal O Jequitinhonha, em 1875, surgem três obras em países diferentes: El maravilloso viaje del Señor Nic-Nac de Eduardo Holmberg (Argentina), O Doutor Benignus de Augusto Emílio Zaluar (Brasil) e Historia de un Muerto de Francisco Calcagno (Cuba).[31][32]
